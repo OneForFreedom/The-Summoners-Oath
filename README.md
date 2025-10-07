@@ -2,7 +2,7 @@
 
 *It's cold, its windy, The castle just kicked you out.*
 
-Apparently you're illuminating a purple aura. You dont see one. As the kings desendant, they let you off easy. They would execute anyone suspected of even reciting magic, and you're just here glowing up - *literally.*
+Apparently you're illuminating a purple aura. You dont see one. As the kings desendant, they let you off easy with an exile. They would execute anyone else suspected of even reciting magic, and you're just here glowing up - *literally.*
 
 You continue walking, but then you hear it. A voice calling you. It's raspy, like that old wizard guy who *adored* Harry Potter.
 
