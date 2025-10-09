@@ -1,4 +1,4 @@
-# The Summoners Oath
+# The Wizard's Kit
 
 *It's cold, its windy, The castle just **kicked** you out.* 
 
