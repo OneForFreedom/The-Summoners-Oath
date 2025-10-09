@@ -18,6 +18,6 @@
 
 *It somehow.. floats? It looks really cool, its **MAGIC**...*
 
-To see the magical spellbook look here >
+To see the magical relics look here >
                                
 To see some cool images, its *down* there v
