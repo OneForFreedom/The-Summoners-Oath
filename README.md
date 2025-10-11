@@ -25,4 +25,20 @@
 
 [Youtube](https://www.youtube.com/shorts/7Jx8A2inyho)
 
+![](Images/Screenshot%202025-10-11%20110402.png)
+![](Images/Screenshot%202025-10-11%20110417.png)
+![](Images/Screenshot%202025-10-11%20110442.png)
+![](Images/Screenshot%202025-10-11%20110502.png)
+![](Images/Screenshot%202025-10-11%20110512.png)
+![](Images/Screenshot%202025-10-11%20110525.png)
+![](Images/Screenshot%202025-10-11%20110545.png)
+![](Images/Screenshot%202025-10-11%20110931.png)
+![](Images/Screenshot%202025-10-11%20110946.png)
+![](Images/Screenshot%202025-10-11%20111006.png)
+![](Images/Screenshot%202025-10-11%20111023.png)
+![](Images/Screenshot%202025-10-11%20111046.png)
+![](Images/Screenshot%202025-10-11%20111112.png)
+![](Images/Screenshot%202025-10-11%20111410.png)
+
+
 ## And finally, here they are.. IRL!! v
